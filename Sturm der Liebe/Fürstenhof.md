@@ -87,6 +87,20 @@ Alfons Sonnbichler (Betriebsrat)
 Betriebsrat 企业工会，企业工会委员会，劳资委员会
 `````
 
+# 股权
+## 现在
+`````
+35 % Christoph Saalfeld
+25 % Schwarzbach AG
+20 % Werner Saalfeld
+20 % Helmut Laux
+`````
+
+## 最初
+Der Fürstenhof gehörte einst Ludwig Saalfeld. Er hat das Schloss durch einen Betrug von Erich von Weyersbrunn erhalten (wird in Staffel 9 aufgedeckt). Nach seinem Tod erbte seine Tochter Charlotte den gesamten Fürstenhof. Bei der Hochzeit mit Werner erhält dieser 50 %.
+
+
+
 # 历史
 ## Ludwig
 Das Schloss Weyersbrunn wurde im Jahr 1768 von Sebastian von Weyersbrunn errichtet. Es blieb bis ins 20. Jahrhundert im Besitz dieser Familie, bis zum vermeintlichen Verkauf des Schlosses an Ludwig Saalfeld.
