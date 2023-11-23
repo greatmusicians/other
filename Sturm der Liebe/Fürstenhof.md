@@ -130,7 +130,7 @@ Werner 原来姓 Konopka，是从原东德逃过来的，与 Charlotte 结婚后
 
 Charlotte 和前男友 Alfons 有个儿子 Alexander，和前夫 Werner 有个儿子 Robert。Alexander 和 Robert 分别是第1、2季的男主。儿子忙着谈恋爱，没有参与酒店管理，所以 Werner 一把年纪还要管事吧。
 
-Alexandra 是从 Ariane 那里买来的股份。Ariane 曾以未婚伴侣的身份从 Christoph 那里获得了股份，但是 Ariane 跟 Christoph 有仇，为了复仇最后进了监狱。Ariane 把股份卖给 Alexandra 而不是别人的原因，就是因为 Alexandra 和 Christoph 之间的矛盾。但是 Alexandra 作为理性、成功、自信的商业强人，跟 Christoph 和解了，开始共同经营管理酒店。
+Alexandra 是从 Ariane 那里买来的股份。Ariane 曾以未婚伴侣的身份从 Christoph 那里获得了股份，但是 Ariane 跟 Christoph 有仇，为了复仇最后进了监狱。Ariane 把股份卖给 Alexandra 而不是别人的原因，就是因为 Alexandra 和 Christoph 之间的矛盾。但是 Alexandra 跟 Christoph 旧情复燃了，开始共同经营管理酒店。
 
 Alexandra 是 Christoph 曾经的未婚妻，后来 Christoph 为了另一个女人抛弃了 Alexandra，两个人有个女儿 Eleni，也就是第19季的女主。
 
