@@ -50,7 +50,7 @@ Hildegard Sonnbichler (Souschefin)
 Souschefin 副主厨，英语是sous chef，辅助主厨管理后厨相关事宜
 `````
 
-## Restaurant。
+## Restaurant
 `````
 Erik Vogt (Restaurantleiter)
 Hanno (Kellner)
